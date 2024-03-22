@@ -1,2 +1,2 @@
-# Games
-Games links
+# Game torrent
+Games links torrents
